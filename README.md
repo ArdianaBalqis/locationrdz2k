@@ -1,1 +1,0 @@
-# locationrdz2k
